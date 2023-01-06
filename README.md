@@ -1,1 +1,1 @@
-# [Patika linkim](https://app.patika.dev/berkayzaim)
+# [Patika.dev hesabım](https://app.patika.dev/berkayzaim)
